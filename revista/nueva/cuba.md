@@ -16,7 +16,9 @@ Batista, a mulatto sergeant who had risen to the rank of general and become a st
 
 En 1958, sin embargo, la dictadura estaba a punto de ser derrotada debido (y quizá esto sea el «determinismo retrospectivo» del que hablaba Max Weber) a la corrupción, el rechazo popular y la represión descontrolada de la policía. Sin embargo, un motivo
 [sobresalía](https://www.spanishdict.com/translate/sobresalir)
-por encima del resto: el deseo de libertad de los cubanos, cansados de las injusticias de Batista. Si a eso unimos la retirada del apoyo estadounidense y la presión guerrillera tendremos el cuadro completo de la caída del régimen en la madrugada del 1 de enero de 1959.
+por
+[encima](https://www.spanishdict.com/translate/encima?langFrom=es&showOnlyResult=true) 
+del resto: el deseo de libertad de los cubanos, cansados de las injusticias de Batista. Si a eso unimos la retirada del apoyo estadounidense y la presión guerrillera tendremos el cuadro completo de la caída del régimen en la madrugada del 1 de enero de 1959.
 
 In 1958, however, the dictatorship was on the verge of collapse due (and perhaps this is the "retrospective determinism" of which Max Weber spoke) to corruption, popular rejection, and unchecked police repression. Nevertheless, one reason stood out above the rest: the Cuban people's desire for freedom, weary of Batista's injustices. If we add to that the withdrawal of US support and the guerrilla pressure, we have the complete picture of the regime's fall in the early hours of January 1, 1959.
 
