@@ -1,4 +1,7 @@
 
+- Sin embargo, un motivo sobresalía por encima del resto
+- Nevertheless, one factor stood out above the rest
+
 https://www.nuevarevista.net/cuba-medio-siglo-entre-la-revolucion-y-la-dictadura-0/
 
 Cuba. Medio siglo entre la revolución y la dictadura
