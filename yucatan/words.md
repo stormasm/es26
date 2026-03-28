@@ -2,6 +2,8 @@
 
 ### Yucatan Today 2025 October
 
+---
+
 - Fue entonces que estos días comenzaron a celebrarse fuera de los hogares, con
 muestras de altares e incluso
 [concursos](https://www.spanishdict.com/translate/concursos)
