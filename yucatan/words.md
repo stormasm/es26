@@ -2,6 +2,11 @@
 
 ### Yucatan Today 2025 October
 
+- La forma “correcta” de
+[montar](https://www.spanishdict.com/translate/montar)
+un altar de Finados puede variar mucho según la región del estado
+- The “right” way to set up a Finados altar may vary greatly within the state.
+
 ---
 
 - Fue entonces que estos días comenzaron a celebrarse fuera de los hogares, con
