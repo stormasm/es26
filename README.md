@@ -1,5 +1,9 @@
 ## es26
 
+#### Ocean of Pdf
+
+- [spanish language books](https://oceanofpdf.com/category/languages/spanish-language-books/)
+
 The following magazines are articulated
 
 #### Nueva Revista
