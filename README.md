@@ -1,5 +1,7 @@
 ## es26
 
+- [Libros para leer gratis en PDF (Obras Clásicas y más)](https://elestudiantedigital.com/libros-pdf/)
+
 #### Biblioteca Estudiantil
 
 - [Biblioteca Estudiantil](https://biblioteca.choapa.cl/)
