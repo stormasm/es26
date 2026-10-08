@@ -13,10 +13,6 @@
 
 —Tal vez haya cometido un error —apuntó él, tomando una brasa con las pinzas y encendiendo con ellas la larga pipa de cerezo que sustituía a la de arcilla cuando se sentía más dado a la polémica que a la reflexión—. Quizá se haya equivocado al intentar añadir color y vida a sus descripciones, en lugar de limitarse a exponer los sesudos razonamientos de causa a
 
-
-> **Footnote:** http://bibliotecadigital.ilce.edu.mx
-
-
 efecto, que son en realidad lo único verdaderamente digno de mención del asunto.
 
 
@@ -30,8 +26,7 @@ Era una mañana fría de principios de primavera, y después del desayuno nos ha
 
 
 ---
-2
-
+##### 2
 ---
 
 
