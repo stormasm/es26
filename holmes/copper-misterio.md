@@ -43,8 +43,7 @@ buen humor, para darme una charla sobre mis defectos literarios.
 
 
 ---
-3
-
+##### 3
 ---
 
 mañana marca, a mi entender, mi punto cero. Léala —me tiró una carta arrugada.
@@ -78,8 +77,7 @@ Mientras él hablaba se abrió la puerta y una joven entró en la habitación. I
 
 
 ---
-4
-
+##### 4
 ---
 
 
@@ -99,8 +97,7 @@ Existe en el West End una agencia para institutrices muy conocida, llamada Westw
 
 
 ---
-5
-
+##### 5
 ---
 
 
@@ -138,8 +135,7 @@ Pues bien, cuando me pasé por allí la semana pasada me hicieron entrar en el d
 
 
 ---
-6
-
+##### 6
 ---
 
 
@@ -217,16 +213,8 @@ Yo no daba crédito a mis oídos. Como puede usted observar, señor Holmes, mi p
 
 
 ---
-9
-
+##### 9
 ---
-
-
----
-http://bibliotecadigital.ilce.edu.mx
-
----
-
 
 —No, señor, la verdad es que no —respondí con firmeza.
 
@@ -250,16 +238,8 @@ Pues bien, cuando regresé a mi alojamiento y encontré la despensa medio vacía
 
 
 ---
-10
-
+##### 10
 ---
-
-
----
-http://bibliotecadigital.ilce.edu.mx
-
----
-
 
 Además, ¿de qué me serviría el pelo? A muchas mujeres les favorece llevarlo corto, y yo podía ser una de ellas. Al día siguiente ya tenía la impresión de haber cometido un error, y un día después estaba plenamente convencida. Estaba casi decidida a tragarme mi orgullo hasta el punto de regresar a la agencia y preguntar si la plaza estaba aún disponible, cuando recibí esta carta del caballero en cuestión. La he traído y se la voy a leer:
 
