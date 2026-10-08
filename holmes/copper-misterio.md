@@ -52,13 +52,6 @@ buen humor, para darme una charla sobre mis defectos literarios.
 
 ---
 
-
----
-http://bibliotecadigital.ilce.edu.mx
-
----
-
-
 mañana marca, a mi entender, mi punto cero. Léala —me tiró una carta arrugada.
 
 
@@ -196,15 +189,7 @@ Quedé un poco perpleja ante la naturaleza de las diversiones del niño, pero la
 
 ---
 8
-
 ---
-
-
----
-http://bibliotecadigital.ilce.edu.mx
-
----
-
 
 dama pueda obedecer con dignidad. No verá usted ningún inconveniente en ello, ¿verdad?
 
