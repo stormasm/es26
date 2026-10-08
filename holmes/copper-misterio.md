@@ -153,6 +153,9 @@ Como podrá imaginar, señor Holmes, estando sin recursos como yo estaba, aquell
 
 —Es también mi costumbre —dijo, sonriendo del modo más amable, hasta que sus ojos quedaron reducidos a dos ranuras que brillaban entre los pliegues blancos de su cara —pagar medio salario por adelantado a mis jóvenes empleadas, para que puedan hacer frente a los pequeños gastos del viaje y el vestuario.
 
+---
+##### 7
+---
 
 Me pareció que nunca había conocido a un hombre tan fascinante y tan considerado. Como ya tenía algunas deudas con los proveedores, aquel adelanto me venía muy bien; sin embargo, toda la transacción tenía un algo de innatural que me hizo desear saber algo más antes de comprometerme.
 
